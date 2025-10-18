@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **hritabratabhui24@gmail.com** For Collaboration/Project or
 - 🤔 **I’m looking for help with:** 
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** hritabratabhui24@gmail.com
-- 😄 **Pronouns:**Rit
+- 😄 **Pronouns:** Rit
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
