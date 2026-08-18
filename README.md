@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Hritabrata Bhui
-**A passionate Software Engineer || Web Developer**
+**A passionate Software Engineer || Full Stack Developer**
 
 Email Me 👉 ✉️ **hritabratabhui24@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
